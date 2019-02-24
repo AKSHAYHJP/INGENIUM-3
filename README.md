@@ -1,0 +1,2 @@
+# INGENIUM-3
+The Annual magazine of GAYA COLLEGE OF ENGINEERING, GAYA.
